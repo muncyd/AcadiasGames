@@ -1,1 +1,1 @@
-# Acadias Games
+# Acadia's Games
